@@ -1,3 +1,0 @@
-# turtrans.github.io
-
-escrrevendo 
